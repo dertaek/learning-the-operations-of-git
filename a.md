@@ -1,1 +1,1 @@
-我是genius
+我不是genius
